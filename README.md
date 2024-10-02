@@ -1,1 +1,2 @@
-![screencapture-127-0-0-1-5501-index-html-2024-10-02-15_30_20](https://github.com/user-attachments/assets/182c6b02-1926-4ec7-976e-1062732739a2)
+## Hero Section
+![AI Club Pakistan](https://github.com/user-attachments/assets/09bb16d0-251f-4e00-93db-2929cab4d3a2)
